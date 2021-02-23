@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-## New github: [github.com/mshaheryarmalik](https://twitter.com/mshaheryarmalik)
+## New github: [github.com/mshaheryarmalik](https://github.com/mshaheryarmalik)
